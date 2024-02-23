@@ -1,0 +1,2 @@
+- [Dissolving Gold in Mercury](https://youtu.be/yAGYGGmUmUw)
+- [Solubility Of Gold In Mercury?](https://youtu.be/0h44IJSDJEs)
