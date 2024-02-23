@@ -1,0 +1,2 @@
+- [Extracting gold from computer parts (Part 1)](https://youtu.be/ASQCa7mfjVo)
+- [Extracting gold from computer parts (Part 2)](https://youtu.be/gt-OOWxr7_s)
